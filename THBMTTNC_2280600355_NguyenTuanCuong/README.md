@@ -1,1 +1,0 @@
-# BMTTNC_2280600287_PhamHongCan
